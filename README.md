@@ -1,4 +1,6 @@
-## Hi there 👋
+## ghelp idk how 2 do this
+<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"/><img width="498" height="470" alt="image" src="https://github.com/user-attachments/assets/042e83a4-da0b-4e41-9ddc-38167822f2e2" />
+
 
 <!--
 **ILikeBanana2/ILikeBanana2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

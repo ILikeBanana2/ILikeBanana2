@@ -11,6 +11,8 @@ c+h is fine but i might move away cuz im scared lmao !!!!
 
 ★ i cosplay as my favorite goobers but im not roleplaying as them or anything,,,, not good at that so erm??????? dont except me 2 rp idk
 
+nobody asked but i really like the j geils band i know nobody my age listens 2 them or talks about them but IT'S FINE,,,, they're so peak oh my gah
+
 <!--
 **ILikeBanana2/ILikeBanana2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

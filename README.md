@@ -7,7 +7,7 @@ ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez in
 
 ★ im hella shy,, dont talk so much while playing i just sit around when i hop on here without my sibling probably listening 2 music (J GEILS BAND RAUGGHHG)
 
-★ u can interact (w2i perhaps) but i dont think you'll get much of a conversation outta me tho,,,, idk what 2 say
+★ u can interact (w2i perhaps??? u dont gotta but i'll probably be more likely 2 notice ur talking 2 me) but i dont think you'll get much of a conversation outta me tho,,,, idk what 2 say
 
 might not reply 2 compliments cuz im lowkey a loser but i really do appreciate them,,,, <3
 

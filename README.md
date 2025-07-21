@@ -7,7 +7,9 @@ ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez in
 
 ★ im hella shy,, dont talk so much while playing i just sit around when i hop on here without my sibling probably listening 2 music (J GEILS BAND RAUGGHHG)
 u can interact but i dont think you'll get much of a conversation outta me tho,,,, idk what 2 say
+might not reply 2 compliments cuz im lowkey a loser but i really do appreciate them,,,, <3
 c+h is fine but i might move away cuz im scared lmao !!!!
+don't copy my skins gahwahghg
 
 ★ i cosplay as my favorite goobers but im not roleplaying as them or anything,,,, not good at that so erm??????? dont except me 2 rp idk
 

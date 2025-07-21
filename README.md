@@ -1,5 +1,5 @@
 ## ★ ello gang
-<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"/><img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/GwI9oinXYAAxrF2.gif?raw=true" alt="GwI9oinXYAAxrF2.gif"/>
+<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"/>
 
 
 ★ look at strawpage 4 dni mb,,,, just be a decent person basically,,
@@ -10,9 +10,6 @@ u can interact but i dont think you'll get much of a conversation outta me tho,,
 c+h is fine but i might move away cuz im scared lmao !!!!
 
 ★ i cosplay as my favorite goobers but im not roleplaying as them or anything,,,, not good at that so erm??????? dont except me 2 rp idk
-
-<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/GwI9oinXYAAxrF2.gif?raw=true" alt="GwI9oinXYAAxrF2.gif"/>
-
 
 <!--
 **ILikeBanana2/ILikeBanana2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

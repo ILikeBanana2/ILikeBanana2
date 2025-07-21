@@ -12,6 +12,7 @@ c+h is fine but i might move away cuz im scared lmao !!!!
 ★ i cosplay as my favorite goobers but im not roleplaying as them or anything,,,, not good at that so erm??????? dont except me 2 rp idk
 
 nobody asked but i really like the j geils band i know nobody my age listens 2 them or talks about them but IT'S FINE,,,, they're so peak oh my gah
+
 <img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/real.gif?raw=true" alt="real.gif"/>
 
 <!--

@@ -1,8 +1,7 @@
 ## ★ ello gang
 <img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"/>
 
-★ ERMMM ignoring that,,,,
-look at strawpage 4 dni mb,,,, just be a decent person basically
+★ look at strawpage 4 dni mb,,,, just be a decent person basically
 ★ ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez interacting with me on here guh
 
 ★ im like incredcibly shy,, dont talk so much while playing i just sit around when i hop on here without my sibling

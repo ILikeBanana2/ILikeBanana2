@@ -3,7 +3,7 @@
 
 
 ★ look at strawpage 4 dni mb,,,, just be a decent person basically,,
-ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez interacting with me on here guh
+ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez interacting with me guh
 
 ★ im hella shy,, dont talk so much while playing i just sit around when i hop on here without my sibling
 u can interact but i dont think you'll get much of a conversation outta me tho,,,, idk what 2 say

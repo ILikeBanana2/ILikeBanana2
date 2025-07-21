@@ -1,5 +1,6 @@
 ## ★ ghelp idk how 2 do this IDK WHY THERE'S TWO MB
-<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"//
+<img src="https://github.com/ILikeBanana2/ILikeBanana2/blob/main/deltarune-utdr.gif?raw=true" alt="deltarune-utdr.gif"/><img width="498" height="470" alt="image" src="https://github.com/user-attachments/assets/62bc0d53-3a35-475b-9a73-40faaea4ba47" />
+
 
 
 <!--

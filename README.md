@@ -12,7 +12,8 @@ ALSO,, since it aint on the strawpage,, dont really want hazbin hotel peoplez in
 might not reply 2 compliments cuz im lowkey a loser but i really do appreciate them,,,, <3
 
 ★ c+h is fine but i might move away cuz im scared lmao !!!!
-don't copy my skins gahwahghg
+
+don't copy my skins gahwahghg,,,, taking inspo is fine just not heavy inspo
 
 ★ i cosplay as my favorite goobers but im not roleplaying as them or anything,,,, not good at that so erm??????? dont except me 2 rp idk
 
